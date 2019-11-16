@@ -42,6 +42,8 @@
   - [Four Horsemen Discussion](https://www.youtube.com/watch?v=rRLYL1Q9x9g) - 1h:57m
 
 ## Astrophysics
+* Lord Martin Rees
+  - [The Future of Humanity](https://www.youtube.com/watch?v=YnU6vMVAdAE)
 * Jill Tarter
   - [youtube](https://www.youtube.com/results?search_query=Jill+Tarter)
 * Seth Shostak
