@@ -23,6 +23,8 @@
   - [youtube](https://www.youtube.com/results?search_query=Shane+Koyczan)
 
 ## Bravery and Wisdom
+* Ayaan Hirsi Ali
+  - [youtube](https://www.youtube.com/results?search_query=Ayaan+Hirsi+Ali)
 * Dan Dennet
   - [Tools To Transform Our Thinking](https://www.youtube.com/watch?v=EJsD-3jtXz0)
   - [youtube](https://www.youtube.com/results?search_query=Dan+Dennet)
